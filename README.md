@@ -1,2 +1,2 @@
-# RIK
+# GAMES
 New
